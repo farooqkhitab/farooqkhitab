@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web related technologies
 - 🌱 I’m currently learning web development. 
 - 💞️ I’m looking to collaborate on web releted projects
-- 📫 How to reach me ...
+- 📫 How to reach me (by my socil handles) you Know best
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: If you wanna learn/doing something don't stick with it. Start chill with it.
 
